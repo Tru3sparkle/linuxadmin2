@@ -1,3 +1,4 @@
 # linuxadmin2
 Linux is amazing
-Hi
+Thank God it's friday
+Tomorrow is the weekend
